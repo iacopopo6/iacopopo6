@@ -1,4 +1,4 @@
-Hi there! 👋 I'm @iacopopo6
+Hi there! 👋 I'm Iacopo
 👀 I'm deeply passionate about coding and love exploring how technology shapes our world. I’m on a journey to hone my skills and make meaningful contributions.
 
 🌱 Currently diving into:
